@@ -6,7 +6,7 @@ Link url(https://github.com/Ashish-23168/-HR-Trends-Report)
 
 ![image](https://github.com/Ashish-23168/-HR-Trends-Report/blob/main/HR_Trends_Report_Page_1_HD.png?raw=true)
 
-![image](https://github.com/Ashish-23168/-HR-Trends-Report/blob/main/HR_Trends_Report_Page_2_HD.png?raw=true)
+![image](https://github.com/Ashish-23168/-HR-Trends-Report/blob/main/HR_Trends_Report_Page_2_HD%202.png?raw=true)
 
 ![image](https://github.com/Ashish-23168/-HR-Trends-Report/blob/main/HR_Trends_Report_Page_3_HD.png?raw=true)
 

@@ -4,6 +4,10 @@
 Link url(https://github.com/Ashish-23168/-HR-Trends-Report)
 
 
+![image](https://github.com/Ashish-23168/-HR-Trends-Report/blob/main/HR_Trends_Report_Page_1_HD.png?raw=true)
+
+![image]()
+
 ![image]()
 
 Instruction:-
